@@ -1,0 +1,9 @@
+# FAQ
+
+## How many photos can I pin?
+
+We know that you want to pin a lot of pictures...
+
+Second paragraph...
+
+Third paragraph...
